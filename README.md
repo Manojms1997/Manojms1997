@@ -31,4 +31,4 @@ Collaborating on open-source projects, especially humanitarian tech, and convers
 
 ---
 
-📫 **Reach me:** [LinkedIn](https://www.linkedin.com/in/YOUR-HANDLE) · [Email](mailto:YOUR-EMAIL)
+📫 **Reach me:** [LinkedIn](https://www.linkedin.com/in/manoj-mysore-srinath-3642821b9/) · [Email](mailto:manojsrinath97@gmail.com)
